@@ -2,6 +2,8 @@
 
 he/it
 
+married to @1prozac irl
+
 if i come off blunt im not trying to be a dick
 
 sorry if i act like idk you if were friends on here vega adds people because hes extroverted
